@@ -1,3 +1,3 @@
 Berkeley IoB, Macau
 
-find a local macau university to collaborate
+Macau University Of Science And Technology to collaborate
